@@ -10,7 +10,7 @@
 
 - 📫 How to reach me at **devesh181002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Vdvaei9uCcsdi3iV16TOU_fq3bUkvJp3/view?usp=sharing](https://drive.google.com/file/d/1Vdvaei9uCcsdi3iV16TOU_fq3bUkvJp3/view?usp=sharing)
+- 📄 Know about my experiences [Resume]([(https://drive.google.com/file/d/1bJYgFlEjQcJuDB7dbcWa4m5mTv5UGdc8/view])
 
 - ⚡ Fun fact **Apart from programming, I like to read interesting and mind stimulating stuff and am a big anime fan.**
 
